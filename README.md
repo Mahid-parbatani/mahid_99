@@ -1,2 +1,2 @@
 # mahid_99
-this is a ost pracical 
+this is a ost practical
